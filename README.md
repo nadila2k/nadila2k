@@ -10,7 +10,6 @@ I’m an energetic, self-motivated, and adaptable individual with a strong found
 📧 **Email:** [nadilanawod@gmail.com](mailto:nadilanawod@gmail.com)  
 📞 **Contact:** +94714722610 / +94783720937  
 🔗 **LinkedIn:** [linkedin.com/in/nadila-nawod-ba977921b](https://www.linkedin.com/in/nadila-nawod-ba977921b/)  
-📂 **Portfolio:** [GitHub](https://github.com/nadila2k)  
 
 ---
 
